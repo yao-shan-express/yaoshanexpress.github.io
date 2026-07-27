@@ -1,2 +1,2 @@
 # yaoshanexpress.github.io
-Servicio de comida bajo el formato de cocina oculta, fusión chino venezolana
+En julio de 2024, Yāo Shān Express nació en Casanay como una propuesta gastronómica novedosa del Chef Alexis Rivas. Diseñado bajo el concepto de cocina oculta, el proyecto revolucionó la forma de disfrutar la comida china al enfocarse por completo en la calidad, la practicidad y la entrega a domicilio. Cada platillo resalta la maestría del wok y la frescura de sus ingredientes, brindando una experiencia rápida, moderna y llena de sabor, pensada para consentir al cliente desde la comodidad de su hogar.
